@@ -1,0 +1,2 @@
+# Global_Wealth_divide
+Global_Wealth_divide
